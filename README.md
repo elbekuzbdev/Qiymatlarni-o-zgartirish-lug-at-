@@ -1,0 +1,1 @@
+# Qiymatlarni-o-zgartirish-lug-at-
